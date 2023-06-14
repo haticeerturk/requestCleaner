@@ -40,4 +40,4 @@ If you have any questions or comments about the extension, please feel free to c
 
 ---
 
-Enjoy!
+Enjoy! :brown_heart:
